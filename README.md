@@ -1,2 +1,2 @@
 # challenge feito por Marcelo Gomes
-## email : marcelo.gomjgmail.com
+## email : marcelo.gomj@gmail.com
